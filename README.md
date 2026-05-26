@@ -1,2 +1,2 @@
-hello person! i really appreciate you taking the time to look at my github and atabook  https://pebbles.atabook.org.
-i hope you dont go bald unless you want to- please have a wonderful life and day internet stranger!
+Hello! check out my atabook:) https://clementines.atabook.org/
+i hope youre doing well, and remember to be kind to everyone too.
