@@ -1,10 +1,1 @@
-Make sure to put something in my ATABOOK! I appreciate you for checking, and anything you say always makes my day better. (Trust me.)
-https://xiored.atabook.org   <--- atabook
-
-           More importantly, PLEASE consider donating to IFAW. They are helping us repair habitats and save animals. 
-           200k+ animals rescued, treated and sheltered from 2000-2018. If you want to help yourself, there are resources on the site too! 
-           If you can't donate or help, maybe try talking to someone who would be interested. Thanks!
-https://www.ifaw.org/about
-           
-
-           
+hello person! i really appreciate you taking the time to look at my github and atabook. i hope you dont go bald unless you want to- please have a wonderful life and day internet stranger!
