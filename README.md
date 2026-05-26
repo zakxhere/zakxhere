@@ -1,3 +1,1 @@
-https://liasplanet.atabook.org
-
-^^ say hiii!!
+im putting an atabook here soon.
